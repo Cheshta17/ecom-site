@@ -1,2 +1,3 @@
 # my-ecommerce-site
-[t shirt](https://github.com/user-attachments/assets/75de79bd-ca96-49ec-8940-58135df3d
+
+![jeans](https://github.com/user-attachments/assets/60f1f34b-845a-430d-8c10-20d3253a6517)
